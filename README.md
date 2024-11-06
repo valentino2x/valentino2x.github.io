@@ -1,1 +1,2 @@
-# valentino2x.github.io
+Wilson Kuang
+Video Game Developer
